@@ -1,1 +1,1 @@
-# Hardcore-re-mastered-remake-by-chubeteliet-real-ver-Voorpr0-vuivuiviu
+# twister X Doors mode by chú bé tê liệt
